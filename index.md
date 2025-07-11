@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+This site is used as a personal notebook of sorts
 
-Maybe say a some things about yourself.
+personal for now, will be shared later (maybe)
 
-Or maybe what you plan to blog about.
+Mostly rants about film and music related stuff. 
